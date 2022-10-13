@@ -1,1 +1,1 @@
-Hello B&M.
+Hello B&M／Japan.
